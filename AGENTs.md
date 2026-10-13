@@ -1,0 +1,1 @@
+I like to work slowly with intent. I don't like acronyms, so I like them spelled out. Dont move to fast and assume I know something, provide a brief explanination of who, what, when and why something ot sbreing donw and important.
